@@ -1,1 +1,0 @@
-# nevingera.github.io
